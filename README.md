@@ -8,7 +8,7 @@
 
 📫 **Connect With Me**
 - LinkedIn: www.linkedin.com/in/chandra-hasan-vittal-nelluri-b0a495210
-- YouTube: [Bright Comedy Dark Chocolate]
+- YouTube: https://www.youtube.com/channel/UC_ht5heAlCgVuXw9xSIstbw
 - Email: [Your Email]
 
 ---
