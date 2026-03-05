@@ -9,7 +9,7 @@
 📫 **Connect With Me**
 - LinkedIn: www.linkedin.com/in/chandra-hasan-vittal-nelluri-b0a495210
 - YouTube: https://www.youtube.com/channel/UC_ht5heAlCgVuXw9xSIstbw
-- Email: [Your Email]
+- Email: vittalchandra2003@gmail.com
 
 ---
 
